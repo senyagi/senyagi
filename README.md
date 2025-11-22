@@ -1,10 +1,8 @@
-![1000127865](https://github.com/user-attachments/assets/9757a0bf-282b-47ad-86de-47521369f34e)
-wow
 
 <div align="center">
 <img src="https://github.com/user-attachments/assets/9757a0bf-282b-47ad-86de-47521369f34e" alt="ally" width="500"/>
 
- ⠀⠀ Until recently... I think I was
+ Until recently... I think I was
 ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ ..still in love with her.
 
   <div align="center">
