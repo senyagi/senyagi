@@ -2,7 +2,7 @@
 ic: uikaposting on twitter⠀⠀⠀⠀⠀ ⠀⠀⠀⠀⠀⠀⠀⠀⠀
 </div>
 <div align="center">
-<img src="https://github.com/user-attachments/assets/9757a0bf-282b-47ad-86de-47521369f34e" alt="ally" width="500"/>
+<img src="https://github.com/user-attachments/assets/0b687722-90e0-4f4e-bd1c-21d282618906" alt="ally" width="400"/>
 
  Today, tomorrow, the day after—
 ⠀⠀⠀ ⠀⠀⠀ ⠀⠀⠀⠀⠀ ⠀  ⠀⠀⠀ I’ll love you forever.
